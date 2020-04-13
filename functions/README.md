@@ -1,0 +1,1 @@
+THIS IS THE CARTEL OF functions
